@@ -10,7 +10,7 @@ Skills: HTML/CSS/Python/Jekyll/Adobe XD
 
 👯 I’m looking to collaborate on Yudzuki,Scratch Wiki,TakuTukirou. 
 
-📫 How to reach me: Twitter,Mail... 
+📫 How to reach me: Twitter,Mail(info<at>t-taku<dot>jp)... 
 
 😄 Pronouns: You can use "He" or "Taku" for me. 
 
